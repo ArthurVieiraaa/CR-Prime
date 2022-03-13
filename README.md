@@ -1,2 +1,2 @@
 # CR-Prime
-[porr]
+Para de zuar redivo fdp
